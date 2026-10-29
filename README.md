@@ -1,2 +1,0 @@
-# Trade-kuy
-Trade
